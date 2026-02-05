@@ -1,4 +1,4 @@
-# Olá! 🩷🌸✨
+# Olá! Eu sou a Gaby!!! 🩷🌸✨
 
 Bem-vindo ao meu perfil rápido — obrigada pela visita! 🎀
 
