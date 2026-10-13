@@ -3,7 +3,7 @@
 Bem-vindo ao meu perfil rápido — obrigada pela visita! 🎀
 
 - **Idade:** 18 anos
-- **Graduação:** Sistemas de Informação - UNIP (2026-2029)
+- **Graduação:** Sistemas de Informação - UNIMETROCAMP Wyden (2026-2030)
 - **Formação:** Técnico em Desenvolvimento de Sistemas — ETEC Hortolândia / SENAI
 - **Experiência:** Digital Solutions — Bosch Campinas, ETS
 
